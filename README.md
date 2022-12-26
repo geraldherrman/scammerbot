@@ -1,0 +1,3 @@
+# scammerbot I'm tired of those Whom have bots used in scamming facebook Cash app groups...Here is its simple the scam is too trick people that are desperate for some bills to be paid or,food,, Dr. visit, gas in the car, etc
+This application will defend or help defend our vurnerable population including me. If you have never had no place to go or so hungry you pass out then you may not understand that when you can not afford a loss like what this scam does then you wouldnt understand the struggle.
+This bot is a good bot that will give the gamers/scammers a nice run around infintely withought ever bleading out what you definiley arent going to get back.
